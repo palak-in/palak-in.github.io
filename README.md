@@ -1,7 +1,7 @@
 # palak-in.github.io
 High class Computer Professional, in making
 
-I am from Fersozepur.
+I am from Ferozepur.
 
 My hobbies are:
 
